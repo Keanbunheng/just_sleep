@@ -1,3 +1,3 @@
 # just_sleep
 
-Good luck with what u have been downloaded!
+Good luck with what u are installed!
